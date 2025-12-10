@@ -1,3 +1,5 @@
+# MUESTRA DE LO EXTRAIDO DE LA PAGINA:
+
 # TÍTULO ORIGINAL 
 # Google unveils plans to try again with smart glasses in 2026
 
